@@ -2,7 +2,7 @@
 Greetings, I'm sure you've seen me around a couple times before.
 Name: Ace / Berry / Gen / Pie    
 Age: 18-19y/o  
-P-noun: She/Her/Herself-They/Them-Themselves
+P-noun: She/Her-They/Them   
 S-Or: Biromantic Aegosexual   
 Status: Taken
 DNI: 25+ y/o and people who just genuinely disrespects my friends or my boundaries!
