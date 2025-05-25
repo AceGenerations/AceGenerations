@@ -1,16 +1,10 @@
-## Hi there 👋
-
-<!--
-**AceGenerations/AceGenerations** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![6ce4709c7c8593ccea6e752fa9cc42b8-removebg-preview](https://github.com/user-attachments/assets/05b9afca-00ef-4a45-923a-92eac68140c3)
+Greetings, I'm sure you've seen me around a couple times before.
+Name: Ace / Berry / Gen / Pie    
+Age: 18-19y/o  
+P-noun: She/Her/Herself-They/Them-Themselves
+S-Or: Biromantic Aegosexual   
+Status: Taken
+DNI: 25+ y/o and people who just genuinely disrespects my friends or my boundaries!
+Interests: MCYT, BB, Psychological Horror, Books, Music     
+![Untitled257_20250420194313](https://github.com/user-attachments/assets/df37e6fb-97b4-4326-92c2-33d9468cd6ad)
