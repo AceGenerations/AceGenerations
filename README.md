@@ -1,4 +1,4 @@
-![6ce4709c7c8593ccea6e752fa9cc42b8-removebg-preview](https://github.com/user-attachments/assets/05b9afca-00ef-4a45-923a-92eac68140c3)
+![6ce4709c7c8593ccea6e752fa9cc42b8-removebg-preview](https://github.com/user-attachments/assets/05b9afca-00ef-4a45-923a-92eac68140c3)    
 Greetings, I'm sure you've seen me around a couple times before.
 Name: Ace / Berry / Gen / Pie    
 Age: 18-19y/o  
