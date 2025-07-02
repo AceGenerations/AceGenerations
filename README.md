@@ -3,7 +3,7 @@ Greetings, I'm sure you've seen me around a couple times before.
 Name: Ace / Berry / Gen / Pie    
 Age: 18-19y/o  
 P-noun: She/Her-They/Them   
-S-Or: Biromantic AceSpec (currently explorating my identity once again)
+S-Or: Biromantic AceSpec (currently explorating my identity once again) 
 Status: Taken              
 DNI: 25+ y/o and people who just genuinely disrespects my friends or my boundaries! Racists, p3dos, pro-shippers, etc. massive DNI, I won't bother you, so don't bother me.
 Interests: MCYT, BB, Psychological Horror, Books, Music, True Crime Documentaries, Tragedy Cases, Fanfiction
