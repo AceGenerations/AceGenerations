@@ -9,5 +9,5 @@ S-Or: Biromantic AceSpec
 Status: Single             
 DNI: People who just genuinely disrespects my friends or my boundaries! Racists, p3dos, pro-shippers, etc. massive DNI, I won't bother you, so don't bother me.   
 Interests: Vtubers, Crk, Genshin, MCYT, BB, Psychological Horror, Books, Music, True Crime Documentaries, Tragedy Cases, Fanfiction
-Kinnie List: Kanae叶, Kaelix/Kalvin, Grian, Venti, Furina, SMC/FOK
+                              Kinnie List: Kanae叶, Kaelix/Kalvin, Grian, Venti, Furina, SMC/FOK
 ![Untitled257_20250420194313](https://github.com/user-attachments/assets/df37e6fb-97b4-4326-92c2-33d9468cd6ad)
