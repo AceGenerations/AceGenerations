@@ -4,8 +4,8 @@ Been playing more Cookie Run Kingdom than PT, and I've been quite busy irl, but 
 Name: Ace / Shamil   
 Age: 19-20y/o  
 Pronoun/s: Any Pronouns  
-G-Or: Genderfluid
-S-Or: Biromantic AceSpec       
+G-Or: Genderfluid                        
+S-Or: Biromantic AceSpec                 
 Status: Single             
 DNI: People who just genuinely disrespects my friends or my boundaries! Racists, p3dos, pro-shippers, etc. massive DNI, I won't bother you, so don't bother me.   
 Interests: Vtubers, Crk, Music, MCYT, BB, Psychological Horror, Books, Music, True Crime Documentaries, Tragedy Cases, Fanfiction.
