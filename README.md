@@ -1,5 +1,5 @@
 ![Untitled257_20250420194313](https://github.com/user-attachments/assets/df37e6fb-97b4-4326-92c2-33d9468cd6ad)       
-Greetings ladies, gentlemen, and those of the in between and the nonexistence! I'm sure you've seen me around a couple times before. If not then you would'nt even be here in the first place! Heh! Though I only come online in rare occasions.
+Greetings ladies, gentlemen, and those of the in between and the nonexistence! I'm sure you've seen me around a couple times before. If not then you wouldn't even be here in the first place! Heh! Though I only come online in rare occasions.
 Been playing more Cookie Run Kingdom than PT, and I've been quite busy irl, but that's none of your business really.                                 
 Name: Ace / Shamil   
 Age: 19-20y/o  
